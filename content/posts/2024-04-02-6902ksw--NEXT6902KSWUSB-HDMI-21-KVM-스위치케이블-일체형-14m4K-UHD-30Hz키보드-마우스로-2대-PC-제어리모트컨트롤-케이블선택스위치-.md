@@ -1,11 +1,10 @@
 ---
-title: "6902ksw  [40~50대 여성추천]  NEXT-6902KSW/USB HDMI 2:1 KVM 스위치/케이블 일체형 1.4m/4K UHD 30Hz/키보드 마우스로  장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
+title: '6902ksw  [40~50대 여성추천]  NEXT-6902KSW/USB HDMI 2:1 KVM 스위치/케이블 일체형 1.4m/4K UHD 30Hz/키보드 마우스로  장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
 date: 2024-04-02
-slug: "6902ksw--NEXT6902KSWUSB-HDMI-21-KVM-스위치케이블-일체형-14m4K-UHD-30Hz키보드-마우스로-2대-PC-제어리모트컨트롤-케이블선택스위치-"
-author: Moon
+slug: '6902ksw--NEXT6902KSWUSB-HDMI-21-KVM-스위치케이블-일체형-14m4K-UHD-30Hz키보드-마우스로-2대-PC-제어리모트컨트롤-케이블선택스위치-'
+author: 'Moon'
 categories: [shopping]
 tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, 6902ksw]
----
 
 **6902ksw: 고성능 커뮤니케이션 솔루션**
 

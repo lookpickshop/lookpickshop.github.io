@@ -1,11 +1,10 @@
 ---
 layout: single
-title: "klin  KLiN 드라잉타월 나노 HD 세차타월 네이비, 1개 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
-author: Moon
+title: 'klin  KLiN 드라잉타월 나노 HD 세차타월 네이비, 1개 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
+author: 'Moon'
 categories: [shopping]
 tags: ["Top5", "shopping", "드라잉타월", "세차타월", "KLiN", "나노HD", "차량관리", "자동차용품"]
 pin: true
----
 
 💦파트너스 활동을 통해 일정액의 수수료를 제공받습니다.💦
 

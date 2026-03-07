@@ -1,11 +1,10 @@
 ---
-title: "atenkh1532a  [40~50대 여성추천]  USB4 케이블 48V 5A 240W 40Gbps GEN3 동축 Coaxial 케이블 C TO C 초고속케이블 썬더볼트3  장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
+title: 'atenkh1532a  [40~50대 여성추천]  USB4 케이블 48V 5A 240W 40Gbps GEN3 동축 Coaxial 케이블 C TO C 초고속케이블 썬더볼트3  장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
 date: 2024-04-02
-slug: "atenkh1532a--USB4-케이블-48V-5A-240W-40Gbps-GEN3-동축-Coaxial-케이블-C-TO-C-초고속케이블-썬더볼트3-4-50cm-240w-1개-"
-author: Moon
+slug: 'atenkh1532a--USB4-케이블-48V-5A-240W-40Gbps-GEN3-동축-Coaxial-케이블-C-TO-C-초고속케이블-썬더볼트3-4-50cm-240w-1개-'
+author: 'Moon'
 categories: [shopping]
 tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, atenkh1532a]
----
 
 **atenkh1532a: 고품질 오디오를 위한 최고의 선택**
 

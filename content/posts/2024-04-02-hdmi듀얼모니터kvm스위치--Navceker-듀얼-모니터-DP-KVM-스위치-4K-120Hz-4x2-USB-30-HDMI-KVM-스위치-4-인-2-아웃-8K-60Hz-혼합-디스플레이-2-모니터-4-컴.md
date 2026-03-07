@@ -1,11 +1,10 @@
 ---
-title: "hdmi듀얼모니터kvm스위치  [40~50대 여성추천]  Navceker 듀얼 모니터 DP KVM 스위치 4K 120Hz 4x2 USB 3.0 HDMI KVM 스위치 4 인 2 아 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
+title: 'hdmi듀얼모니터kvm스위치  [40~50대 여성추천]  Navceker 듀얼 모니터 DP KVM 스위치 4K 120Hz 4x2 USB 3.0 HDMI KVM 스위치 4 인 2 아 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
 date: 2024-04-02
-slug: "hdmi듀얼모니터kvm스위치--Navceker-듀얼-모니터-DP-KVM-스위치-4K-120Hz-4x2-USB-30-HDMI-KVM-스위치-4-인-2-아웃-8K-60Hz-혼합-디스플레이-2-모니터-4-컴"
-author: Moon
+slug: 'hdmi듀얼모니터kvm스위치--Navceker-듀얼-모니터-DP-KVM-스위치-4K-120Hz-4x2-USB-30-HDMI-KVM-스위치-4-인-2-아웃-8K-60Hz-혼합-디스플레이-2-모니터-4-컴'
+author: 'Moon'
 categories: [shopping]
 tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, hdmi듀얼모니터kvm스위치]
----
 
 **HDMI 듀얼 모니터 KVM 스위치: 탁월한 작업 공간 유연성**
 
