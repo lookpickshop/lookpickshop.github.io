@@ -3,8 +3,9 @@ title: 'kvm4:1  [40~50대 여성추천]  Navceker HDMI DP KVM 스위치 2x2 4K 1
 date: 2024-04-02
 slug: 'kvm41--Navceker-HDMI-DP-KVM-스위치-2x2-4K-120Hz-듀얼-모니터-확장-디스플레이-8K-USB-KVM-스위처-2-대-컴퓨터용-2-인-2-아웃-ZYASW222-'
 author: 'Moon'
-categories: [shopping]
-tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, kvm4:1]
+categories: ['shopping']
+tags: ['Top10', 'shopping', '장점', '추천', '추천제품', '구매가이드', '할인', '최저가격', '상품평', '후기', 'kvm4:1']
+---
 
 ## 'kvm4:1' 스위치: 게임, 작업에 최적의 선택
 

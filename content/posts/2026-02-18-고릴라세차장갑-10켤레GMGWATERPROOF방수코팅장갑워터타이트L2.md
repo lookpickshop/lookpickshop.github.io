@@ -2,9 +2,10 @@
 layout: single
 title: '고릴라세차장갑  (10켤레) GMG WATERPROOF 방수 코팅장갑 워터타이트 L2005, 워터타이트 M, 10세트 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 '
 author: 'Moon'
-categories: [shopping]
-tags: ["Top5", "shopping", "방수장갑", "코팅장갑", "작업장갑", "GMG WATERPROOF", "워터타이트", "산업용장갑", "대량구매", "작업용품", "안전장갑", "개인보호장비"]
+categories: ['shopping']
+tags: ['Top5', 'shopping', '방수장갑', '코팅장갑', '작업장갑', 'GMG WATERPROOF', '워터타이트', '산업용장갑', '대량구매', '작업용품', '안전장갑', '개인보호장비']
 pin: true
+---
 
 💦파트너스 활동을 통해 일정액의 수수료를 제공받습니다.💦
 

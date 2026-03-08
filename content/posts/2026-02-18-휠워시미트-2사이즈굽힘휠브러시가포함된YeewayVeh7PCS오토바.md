@@ -2,9 +2,10 @@
 layout: single
 title: '휠워시미트  2사이즈 굽힘 휠 브러시가 포함된 YeewayVeh 7PCS 오토바이 청소 키트 - 하드 리치 브러시 타이어 및 체인 멧돼지 장점 및 추천 제품 구매 가이드 할인 최저'
 author: 'Moon'
-categories: [shopping]
-tags: ["Top5", "shopping", "오토바이청소키트", "휠브러시", "체인브러시", "디테일링", "극세사미트", "오토바이관리"]
+categories: ['shopping']
+tags: ['Top5', 'shopping', '오토바이청소키트', '휠브러시', '체인브러시', '디테일링', '극세사미트', '오토바이관리']
 pin: true
+---
 
 💦파트너스 활동을 통해 일정액의 수수료를 제공받습니다.💦
 
